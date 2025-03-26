@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GabrielBrito90
-- 👀 I’m interested in Pós graduação em Engenharia de Dados MBA
+- 👀 I’m interested in Pós graduação em Engenharia de Dados
 - 🌱 I’m currently learning Tecnologia da informação Ênfase de Dados
 - 💞️ I’m looking to collaborate on conhecimentos 
 - 📫 How to reach me GabrielBrito90
